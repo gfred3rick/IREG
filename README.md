@@ -3,8 +3,11 @@
 Presentations and discussions of current projects in and around the Delaware Valley region.
 
 **Chair:** Jason Miller, Burlington County Bridge Commission
+
 **Vice-Chair:** Cynthia McCoy, FEMA Region III
+
 **Staff Coordinator(s):** Chris Pollard
+
 **Assistant Coordinator:** Jesse Strangfeld
 
 #### Meetings
